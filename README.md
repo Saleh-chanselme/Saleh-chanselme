@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I’m Saleh<br>im currently in un Artificail intelligence course <br>im intrested in web development & AI development chatbots & callbots<br>I’m looking for an opportunity to collaborate on developping my littel projects ...<br>📫 you can reach me on ... saleh.chanselme@gmail.com
+Hi, I’m Saleh<br>im currently in un Artificail intelligence course <br>im intrested in web development & AI development chatbots & callbots<br>I’m looking for an opportunity to collaborate on developping my littel projects ...<br>
 
 
 ## 🌐 Socials:
